@@ -1,4 +1,4 @@
-# **Shellvision haters/antis STRICTLY DO NOT INTERACT. I'm sick of you all coming up to me and saying ''Shelly/Vee x ??? is better!!'' or harassing me. Of course not everyone does that, but seriously, it's  getting tiring.
+# Shellvision haters/antis STRICTLY DO NOT INTERACT. I'm sick of you all coming up to me and saying ''Shelly/Vee x ??? is better!!'' or harassing me. Of course not everyone does that, but seriously, it's  getting tiring.
 ---------------
 
 # ''S-Shellvision DNI-'' YOU DNI. YOU DNI I DONT WANT TO INT WITH YOU OMG (if its a joke idm)
