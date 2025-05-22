@@ -1,6 +1,6 @@
-# Shellvision haters/antis STRICTLY DO NOT INTERACT. I'm sick of you all coming up to me and saying ''Shelly/Vee x ??? is better!!'' or harassing me. Of course not everyone does that, but seriously, it's  getting tiring.
+# Shellvision haters/antis, ESPECIALLY VEE X ASTRO SHIPPERS STRICTLY DO NOT INTERACT. It's barely even ''unless friends'' at this point. The ship makes me so uncomfortable that I want to lash out, genuinely. I WILL block you if I need to.
 ---------------
 
-# ''S-Shellvision DNI-'' YOU DNI. YOU DNI I DONT WANT TO INT WITH YOU OMG ILL EVEN BLOCK YOU IF I NEED TO (sorry it sounds mean but im tired of this💔 and if its a joke idm)
+# ''S-Shellvision DNI-'' YOU DNI. YOU DNI I DONT WANT TO INT WITH YOU. (sorry it sounds mean but im tired of this💔 and if its a joke idm)
 ![Ekran görüntüsü 2025-04-12 004015](https://github.com/user-attachments/assets/c4b73a99-dc04-439d-bd03-4227dc922341)
 # Art made by @kitaryuuu on Pinterest
